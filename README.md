@@ -1,1 +1,1 @@
-- 🌐 Check out my [Personal Website](https://chrisballam.com/?utm_source=github&utm_medium=referral&utm_campaign=profile&utm_content=profile_readme)
+- 🌐 Check out my [Personal Website](https://chrisballam.com/?utm_source=github&utm_medium=social&utm_campaign=profile&utm_content=profile-readme)
